@@ -33,7 +33,19 @@ get it allright this close
 
 satsu
 
+get it allright io / odiooo
+get it allrighty io / odiooo
+get it allright yo
+get it allrightya from odio-ooooom?
 
+get it allright yo
+get it allright into
+get it allright yo
+get it allrighty yo
+
+x
+
+get it allright this close
 
 ```
 
