@@ -17,8 +17,8 @@
 ## Lyrics
 
 ```
-get it allright io
-get it allrighty io
+get it allright io / odiooo
+get it allrighty io / odiooo
 get it allright yo
 get it allrightya from
 
@@ -30,8 +30,8 @@ get it allrighty yo
 get it allright this close
 
 
-odiooo
-odiooo
+
+
 
 ```
 
