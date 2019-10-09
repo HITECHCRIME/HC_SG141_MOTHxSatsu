@@ -16,7 +16,10 @@
 ## Lyrics
 
 ```
-
+get it allright yo
+get it allrighty yo
+get it allright yo
+get it allrighty yo
 
 ```
 
