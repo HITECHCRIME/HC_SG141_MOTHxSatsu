@@ -10,7 +10,6 @@
 
 - MOTHNODE lead + Satsu verses song.
 
-
 **Title:** x / **Featuring:** 
 
 **Production:**  / **Lyrics:** 
@@ -19,14 +18,13 @@
 
 ```
 
+get it allright io
+get it allrighty io
 get it allright yo
-get it allrighty yo
-get it allright yo
-get it allrighty yo
-from
+get it allrightya from
 
 get it allright yo
-get it allrighty yo
+get it allright into
 get it allright yo
 get it allrighty yo
 
