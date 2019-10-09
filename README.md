@@ -17,7 +17,6 @@
 ## Lyrics
 
 ```
-
 get it allright io
 get it allrighty io
 get it allright yo
@@ -29,8 +28,6 @@ get it allright yo
 get it allrighty yo
 
 get it allright this close
-
-
 
 ```
 
