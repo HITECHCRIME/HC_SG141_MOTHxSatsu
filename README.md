@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE x Satsu666_ X
+# MOTHNODE x Satsu666_ Odio
 
 **Listen now:** 
 
@@ -10,9 +10,9 @@
 
 - MOTHNODE lead + Satsu verses song.
 
-**Title:** x / **Featuring:** 
+**Title:** Odio / **Featuring:** MOTHNODE, Satsugai666x
 
-**Production:**  / **Lyrics:** 
+**Production:**  / **Lyrics:** MOTHNODE, Satsugai666x
 
 ## Lyrics
 
