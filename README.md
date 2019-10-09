@@ -29,10 +29,6 @@ get it allrighty yo
 
 get it allright this close
 
-
-
-
-
 ```
 
 ## Lyrics Testing Ground
