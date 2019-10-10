@@ -20,7 +20,7 @@
 get it allright io / odiooo
 get it allrighty io / odiooo
 get it allright yo
-get it allrightya from odio-ooooom?
+get it allrightya from odio-ooooom? oriooo
 
 get it allright yo
 get it allright into
