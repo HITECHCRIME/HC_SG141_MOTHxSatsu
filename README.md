@@ -32,7 +32,6 @@ get it allright yo
 get it allrighty yo
 
 x
- 
 get it allright this close
 
 (satsu)
