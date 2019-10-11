@@ -26,7 +26,6 @@ que (IT) tal odioooo
 que tal al demoniooo
 matar a todas que resemblan scorpio
 
-
 get it allright yo
 get it allright into
 get it allright yo
