@@ -24,7 +24,7 @@ get it allrightya from odio-ooooom? oriooo
 
 que (IT) tal odioooo
 que tal al demoniooo
-matar a todas que resemblan scorpio
+matar a todos que resemblan scorpios
 
 get it allright yo
 get it allright into
