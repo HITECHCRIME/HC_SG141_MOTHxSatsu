@@ -31,7 +31,7 @@ x
  
 get it allright this close
 
-satsu
+(satsu)
 
 get it allright io / odiooo
 get it allrighty io / odiooo
