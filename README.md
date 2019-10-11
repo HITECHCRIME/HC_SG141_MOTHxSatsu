@@ -25,6 +25,8 @@ get it allrightya from odio-ooooom? oriooo
 que (IT) tal odioooo
 que tal al demoniooo
 matar a todos que resemblan scorpios
+despica amable
+ropa al odioooo
 
 get it allright yo
 get it allright into
