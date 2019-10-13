@@ -18,8 +18,8 @@
 
 ```
 credit de odiooo
-credit de odioo                                   promised hate
-cred de prometí on fe
+credit de odioo                                   
+cred de prometí on fe                             promised hate
 
 credit de odiooo
 credit de odioo                                   
