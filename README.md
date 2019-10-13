@@ -21,17 +21,32 @@ credit de odiooo
 credit de odioo                                   promised hate
 cred de prometí on fe
 
+credit de odiooo
+credit de odioo                                   promised hate
+cred de prometí on fe
+
+que (IT) tal tu odioooo
+right el dioooo
+que tal al demoniooo
+
+que (IT) tal tu odioooo
+right el dioooo
+que tal al demoniooo
+
+matar a todos que resemblan scorpios
+
+
+despica amable
+ropa al odioooo
+toxina conosca ahora
+mejor 
+amador
+
 get it allright io / fe-ti-daaas odiooo
 
 get it allrighty io / odiooo
 get it allright yo
 get it allrightya from odio-ooooom? oriooo
-
-que (IT) tal odioooo
-que tal al demoniooo
-matar a todos que resemblan scorpios
-despica amable
-ropa al odioooo
 
 get it allright yo
 get it allright into
