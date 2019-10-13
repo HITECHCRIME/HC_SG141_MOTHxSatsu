@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE x Satsugai_ Odio
+# MOTHNODE x Satsugai_ (Que Tal Tu) Odio
 
 **Listen now:** 
 
