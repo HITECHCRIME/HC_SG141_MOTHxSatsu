@@ -22,8 +22,8 @@ credit de odioo                                   promised hate
 cred de prometí on fe
 
 credit de odiooo
-credit de odioo                                   promised hate
-cred de prometí on fe
+credit de odioo                                   
+cred de prometí on fe                             promised hate
 
 que (IT) tal tu odioooo
 right el dioooo
