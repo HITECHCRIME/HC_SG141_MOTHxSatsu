@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE x Satsu666_ Odio
+# MOTHNODE x Satsugai_ Odio
 
 **Listen now:** 
 
@@ -17,8 +17,6 @@
 ## Lyrics
 
 ```
-
-
 credit de odiooo
 credit de odioo                                   promised hate
 cred de prometí on fe
