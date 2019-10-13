@@ -17,7 +17,14 @@
 ## Lyrics
 
 ```
+
+
+credit de odiooo
+credit de odioo                                   promised hate
+cred de prometí on fe
+
 get it allright io / fe-ti-daaas odiooo
+
 get it allrighty io / odiooo
 get it allright yo
 get it allrightya from odio-ooooom? oriooo
