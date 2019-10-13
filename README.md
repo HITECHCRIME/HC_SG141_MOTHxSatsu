@@ -56,7 +56,6 @@ get it allrighty yo
 x
 
 get it allright this close
-
 ```
 
 ## Lyrics Testing Ground
