@@ -38,8 +38,10 @@ absolved of all sins
 still craving for more
 
 discovered the limelight
-inside pretending to show
-me to way to atone for missed(?)
+inside pretending to show 
+the way to atone for missed(?)
+opportunities i can still get ahold
+i don't control
 
 que (IT) tal tu odioooo
 right el dioooo
