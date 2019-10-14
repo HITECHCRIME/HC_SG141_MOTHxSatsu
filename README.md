@@ -40,7 +40,7 @@ still craving for more
 discovered the limelight
 inside pretending to show 
 the way to atone for missed(?)
-opportunities i can still get ahold
+opportune deities can still get ahold
 i don't control
 
 que (IT) tal tu odioooo
