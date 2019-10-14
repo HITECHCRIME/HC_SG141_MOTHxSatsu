@@ -29,6 +29,18 @@ que (it) tal tu odioooo
 right el dioooo
 que tal al demoniooo
 
+we murdered our god 
+absolved of all sins
+still craving for more
+
+we murdered our god 
+absolved of all sins
+still craving for more
+
+discovered the limelight
+inside pretending to show
+me to way to atone for missed(?)
+
 que (IT) tal tu odioooo
 right el dioooo
 que tal al demoniooo
