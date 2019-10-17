@@ -64,19 +64,19 @@ Get it allright yo
 Get it allrightya from odio-ooooom? oriooo
 
 Get it allright yo
-get it allright into
-get it allright yo
-get it allrighty yo
+Get it allright into
+Get it allright yo
+Get it allrighty yo
 
 x
-get it allright this close
+Get it allright this close
 
 (satsu)
 
-get it allright io / odiooo
-get it allrighty io / odiooo
-get it allright yo
-get it allrightya from odio-ooooom?
+Get it allright io / odiooo
+Get it allrighty io / odiooo
+Get it allright yo
+Get it allrightya from odio-ooooom?
 
 get it allright yo
 get it allright into
