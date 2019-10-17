@@ -12,7 +12,7 @@
 
 **Title:** (Que Tal Tu) Odio / **Featuring:** MOTHNODE, Satsugai666x
 
-**Production:**  / **Lyrics:** MOTHNODE, Satsugai666x
+**Production:** klimonglue / **Lyrics:** MOTHNODE, Satsugai666x
 
 ## Lyrics
 
