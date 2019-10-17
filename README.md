@@ -27,15 +27,15 @@ Credit de odiooo
 Credit de odioo                                   
 Cred de prometí on fe                             promised hate
 
-que (it) tal tu odioooo
-right el dioooo
-que tal al demoniooo
+Que (it) tal tu odioooo
+Right el dioooo
+Que tal al demoniooo
 
-we murdered our god 
-absolved of all sins
-still craving for more
+We murdered our god 
+Absolved of all sins
+Still craving for more
 
-we murdered our god 
+We murdered our god 
 absolved of all sins
 still craving for more
 
