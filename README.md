@@ -51,7 +51,6 @@ que tal al demoniooo
 
 matar a todos que resemblan scorpios
 
-
 despica amable
 ropa al odioooo
 toxina conosca ahora
