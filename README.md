@@ -42,10 +42,10 @@ Still craving for more
 Discovered the limelight
 Inside pretending to show 
 The way to atone for missed(?)
-opportune deities can still get ahold
-i don't control
+Opportune deities can still get ahold
+I don't control
 
-que (IT) tal tu odioooo
+Que (IT) tal tu odioooo
 right el dioooo
 que tal al demoniooo
 
