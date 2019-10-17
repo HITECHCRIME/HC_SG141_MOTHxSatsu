@@ -53,11 +53,11 @@ Matar a todos que resemblan scorpios
 
 Despica amable
 Ropa al odioooo
-toxina conosca ahora
-mejor 
-amador
+Toxina conosca ahora
+Mejor 
+Amador
 
-get it allright io / fe-ti-daaas odiooo
+Get it allright io / fe-ti-daaas odiooo
 
 get it allrighty io / odiooo
 get it allright yo
