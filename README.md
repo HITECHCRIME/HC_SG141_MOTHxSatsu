@@ -17,7 +17,7 @@
 ## Lyrics
 
 ```
-credit de odiooo
+Credit de odiooo
 credit de odioo                                   
 cred de prometí on fe                             promised hate
 
