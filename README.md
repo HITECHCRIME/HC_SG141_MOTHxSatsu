@@ -46,13 +46,13 @@ Opportune deities can still get ahold
 I don't control
 
 Que (IT) tal tu odioooo
-right el dioooo
-que tal al demoniooo
+Right el dioooo
+Que tal al demoniooo
 
-matar a todos que resemblan scorpios
+Matar a todos que resemblan scorpios
 
-despica amable
-ropa al odioooo
+Despica amable
+Ropa al odioooo
 toxina conosca ahora
 mejor 
 amador
