@@ -105,4 +105,6 @@ get it allright this close
 
 ## Notes
 
+Make it a bit more melodic.
+
 ## Music Video
