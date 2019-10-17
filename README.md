@@ -59,9 +59,9 @@ Amador
 
 Get it allright io / fe-ti-daaas odiooo
 
-get it allrighty io / odiooo
-get it allright yo
-get it allrightya from odio-ooooom? oriooo
+Get it allrighty io / odiooo
+Get it allright yo
+Get it allrightya from odio-ooooom? oriooo
 
 get it allright yo
 get it allright into
