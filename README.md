@@ -20,12 +20,12 @@
 "que tal tu odio hombre?"
 
 Credit de odiooo
-credit de odioo                                   
-cred de prometí on fe                             promised hate
+Credit de odioo                                   
+Cred de prometí on fe                             promised hate
 
-credit de odiooo
-credit de odioo                                   
-cred de prometí on fe                             promised hate
+Credit de odiooo
+Credit de odioo                                   
+Cred de prometí on fe                             promised hate
 
 que (it) tal tu odioooo
 right el dioooo
