@@ -15,7 +15,6 @@
 **Production:** klimonglue / **Lyrics:** MOTHNODE, Satsugai666x
 
 ## Lyrics
-
 ```
 "que tal tu odio hombre?"
 
@@ -85,7 +84,6 @@ get it allrighty yo
 
 x
 
-
 get it allright this close
 ```
 
@@ -108,3 +106,5 @@ get it allright this close
 Make it a bit more melodic.
 
 ## Music Video
+
+?
