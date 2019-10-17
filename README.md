@@ -63,7 +63,7 @@ Get it allrighty io / odiooo
 Get it allright yo
 Get it allrightya from odio-ooooom? oriooo
 
-get it allright yo
+Get it allright yo
 get it allright into
 get it allright yo
 get it allrighty yo
