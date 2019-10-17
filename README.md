@@ -36,12 +36,12 @@ Absolved of all sins
 Still craving for more
 
 We murdered our god 
-absolved of all sins
-still craving for more
+Absolved of all sins
+Still craving for more
 
-discovered the limelight
-inside pretending to show 
-the way to atone for missed(?)
+Discovered the limelight
+Inside pretending to show 
+The way to atone for missed(?)
 opportune deities can still get ahold
 i don't control
 
