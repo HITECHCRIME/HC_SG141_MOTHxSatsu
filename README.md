@@ -10,7 +10,7 @@
 
 - MOTHNODE lead + Satsu verses song.
 
-**Title:** Odio / **Featuring:** MOTHNODE, Satsugai666x
+**Title:** (Que Tal Tu) Odio / **Featuring:** MOTHNODE, Satsugai666x
 
 **Production:**  / **Lyrics:** MOTHNODE, Satsugai666x
 
