@@ -44,6 +44,9 @@ The way to atone for missed(?)
 Opportune deities can still get ahold
 I don't control
 I don't call fiends to do as they told
+I don't make farse out of what matters to me
+Pray, bow down to deity you call 
+Maybe blessings will be bestowed.
 
 Que (IT) tal tu odioooo
 Right el dioooo
