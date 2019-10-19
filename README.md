@@ -43,6 +43,7 @@ Inside pretending to show
 The way to atone for missed(?)
 Opportune deities can still get ahold
 I don't control
+I don't call fiends to do as they told
 
 Que (IT) tal tu odioooo
 Right el dioooo
