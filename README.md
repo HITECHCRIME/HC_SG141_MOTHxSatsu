@@ -9,6 +9,7 @@
 [FREE] SKI MASK THE SLUMP GOD x XXXTENTACION x RONNY J TYPE BEAT 2019  prod. by klimonglue
 
 - MOTHNODE lead + Satsu verses song.
+
 Statsu first part of the song.
 
 **Title:** (Que Tal Tu) Odio / **Featuring:** MOTHNODE, Satsugai666x
