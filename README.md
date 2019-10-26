@@ -19,6 +19,7 @@ Statsu first part of the song.
 "que tal tu odio hombre?"
 
 Credit de odiooo
+
 Credit de odioo                                   
 Cred de prometí on fe                             promised hate
 
